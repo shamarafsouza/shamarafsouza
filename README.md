@@ -1,8 +1,8 @@
 👩‍💻 Shamara Ferreira de Souza
 
-🎓 Estudante de Sistemas de Informação | 7º Período
+🎓 Bacharelado em Sistemas de Informação
 
-📚 21 anos, apaixonada por TI e programação
+📚 22 anos, apaixonada por TI e programação
 
 🚀 Em busca de aprender e crescer no mundo da tecnologia
 
